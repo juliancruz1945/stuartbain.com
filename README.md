@@ -1,2 +1,0 @@
-# stuartbain.com
-stuartbain.com
